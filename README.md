@@ -1,0 +1,1 @@
+# gintoki230698.github.io
